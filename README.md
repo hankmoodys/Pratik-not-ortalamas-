@@ -1,0 +1,1 @@
+# Pratik-not-ortalamas-

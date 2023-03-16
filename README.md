@@ -1,1 +1,1 @@
-# Pratik-not-ortalamasi
+
